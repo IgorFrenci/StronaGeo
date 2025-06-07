@@ -1,0 +1,1 @@
+# StronaGeo
